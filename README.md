@@ -2,7 +2,7 @@
 
 <div align="center">
 
-![Standard Digitals](https://standarddigitals.com/wp-content/uploads/2024/06/cropped-Standard-Digitals-Logo.png)
+![Standard Digitals](https://standarddigitals.com/wp-content/uploads/2025/02/Standard-Digitals_Logo-1.png)
 
 ### 🚀 AI-Powered Digital Marketing & Web Development Agency
 
